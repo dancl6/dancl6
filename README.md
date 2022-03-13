@@ -8,7 +8,7 @@ Full Stack Engineer looking to apply the problem-solving abilities I gained in i
 
 📝 Check my resume out here: [Dan's Resume](https://docs.google.com/document/d/1A8lerBBGtJNjUqlYEXKBgpyMvfyy1r6Zr2jWW19o7bY/edit#)
 
-💬 Message me here: [Linkedin](http://linkedin.com/in/dan-lyons-41380337/)
+💬 Message me here: [Linkedin](http://linkedin.com/in/dan-c-lyons/)
 
 📫 Reach me via email: [danielclyons@yahoo.com](mailto:danielclyons@yahoo.com)
 
