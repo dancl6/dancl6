@@ -6,7 +6,7 @@ Full Stack Engineer looking to apply the problem-solving abilities I gained in i
 
 👀 View my portfolio here: [Portfolio](https://dan-lyonss-amazing-site.webflow.io/)
 
-📝 Check my resume out here: [Dan's Resume](https://docs.google.com/document/d/1A8lerBBGtJNjUqlYEXKBgpyMvfyy1r6Zr2jWW19o7bY/edit#)
+📝 Check my resume out here: [Dan's Resume](https://docs.google.com/document/d/1jC2npueCnmEXJ8ZwIcWV6IMdALRwOoAEGCpuUavG1e8/edit?usp=sharing)
 
 💬 Message me here: [Linkedin](http://linkedin.com/in/dan-c-lyons/)
 
