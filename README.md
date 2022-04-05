@@ -10,6 +10,6 @@ Full Stack Engineer with extensive technical training and excellent leadership, 
 
 💬 Message me here: [Linkedin](http://linkedin.com/in/dan-c-lyons/)
 
-📫 Reach me via email: [danielclyons@yahoo.com](mailto:danielclyons@yahoo.com)
+📫 Reach me via email: [dan.lyons.career@gmail.com](mailto:dan.lyons.career@gmail.com)
 
 📲 Call Me here: (201) 207-5877
