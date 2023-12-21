@@ -8,4 +8,3 @@ Full Stack Engineer with extensive technical training and excellent leadership, 
 
 📫 Reach me via email: [dan.lyons.career@gmail.com](mailto:dan.lyons.career@gmail.com)
 
-📲 Call Me here: (201) 207-5877
